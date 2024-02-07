@@ -1,0 +1,2 @@
+# orang-gila
+masuknya odgj
